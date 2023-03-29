@@ -5,6 +5,8 @@ Based on a recipe from an Ottolenghi book.  Don't ask me which one, that would h
 
 Serve with rice, maybe, or just salad, depending on how much you're craving carbohydrate.
 
+Makes eight servings.
+
 Ingredients
 -----------
 
