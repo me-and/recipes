@@ -17,6 +17,8 @@ Ingredients
         rehydrated dried mushrooms for additional flavour)
     -   Large handful spinach
     -   Vegetable oil
+    -   Other vegetables as desired (consider beansprout and/or water
+        chestnut?)
 -   Sauce:
     -   3½ tbsp soy sauce
     -   3 tbsp brown sugar (or similar palm sugar)
